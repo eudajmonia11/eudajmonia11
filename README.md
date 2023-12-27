@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @eudajmonia11
+- 👀 I’m interested in cognitive science, asian art and programming
+- 🌱 I’m currently learning well... programming?
