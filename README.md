@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @eudajmonia11
-- 👀 I’m interested in cognitive science, asian art and programming
+- 👀 I’m interested in mathematical cognition, hilma af klint and that one pretty guy (lol)
 - 🌱 I’m currently learning well... programming?
